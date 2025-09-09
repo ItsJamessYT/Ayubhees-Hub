@@ -17,4 +17,4 @@ I actively update the script **every weekend**, so be sure to check back frequen
 
 ## 💬 Stay Connected
 
-If you enjoy using this Hub or have ideas for improvement, feel free to reach out or join the community — I’d love to hear from you! https://discord.gg/pgWQrs6sMH
+If you enjoy using this Hub or have ideas for improvement, feel free to reach out or join the community — I’d love to hear from you! https://discord.gg/8BsxUEj3Rr
