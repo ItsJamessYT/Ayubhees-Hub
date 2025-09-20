@@ -1,4 +1,4 @@
-## 🌟 Ayubhees Hub
+## 🥶 Cold Hub
 
 Hello there! 👋
 I'm **James**, a passionate Roblox exploiter and the creator of this Hub. I built this project with the goal of growing and supporting an awesome community of scripters, exploiters, and Roblox enthusiasts like you.
